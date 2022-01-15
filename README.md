@@ -4,8 +4,6 @@
 - Pronounss: She/Her
 - Currently working on getting my life together, coding better, and improving on my art.
 - Currently loving [my OCs](https://toyhou.se/Shinzi/characters) uwu
-- Current art WIP: 
-  ![HiroEmis!!!](https://drive.google.com/file/d/1b858LXk-69Gx83GYANgmXgR0SA4Squ0i/view?usp=sharing)
 - Current coding classes: CS1550, CS1632, CS1652, CS1980 😭
 
 Anyway, stan Hiroki. Bye.
