@@ -1,4 +1,4 @@
-# A coder who just wants to draw hot anime men 👌
+# A ~~suffering~~ coder who just wants to draw hot anime men 👌
 
 ## Info 
 - Pronounss: She/Her
