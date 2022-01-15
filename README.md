@@ -6,6 +6,7 @@
 - Currently loving [my OCs](https://toyhou.se/Shinzi/characters) uwu
 - Current coding classes: CS1550, CS1632, CS1652, CS1980 😭
 - Current art WIP: 
+
   ![This is an image](https://github.com/Xiao-Suda/Xiao-Suda/blob/main/Screen%20Shot%202022-01-15%20at%2012.49.37%20AM.png)
 
 Anyway, stan Hiroki. Bye.
